@@ -7,7 +7,7 @@
 - 2/3 cup milk
 - 1 1/4 cups heavy cream
 - 1/2 teaspoon vanilla extract
-- 1 pound mascarpone cheese
+- 500gr mascarpone cheese
 - 1/4 cup strong brewed coffee, room temperature
 - 2 tablespoons rum
 - 2 (3 ounce) packages ladyfinger cookies
