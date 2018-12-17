@@ -5,9 +5,9 @@
 - 1 cup uncooked white rice
 - 2 cups water
 - cooking spray
-- 3 eggs, beaten
+- 6 eggs, beaten
 - 1 tablespoon vegetable oil
-- 1 onion, chopped
+- 3 onions, chopped
 - 1 leek, chopped
 - 1 clove garlic, minced
 - 2 green chile peppers, chopped

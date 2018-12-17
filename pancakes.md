@@ -8,8 +8,8 @@
 - 1 teaspoon salt
 - 1 tablespoon white sugar
 - 1 1/4 cups milk
-- 1 egg
-- 3 tablespoons butter, melted
+- 3 eggs
+- 4 tablespoons butter, melted
 
 ## Preparation
 
