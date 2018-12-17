@@ -3,7 +3,7 @@
 ## Ingredients
 
 - 6 egg yolks
-- 3/4 cup white sugar
+- 85g white sugar
 - 2/3 cup milk
 - 1 1/4 cups heavy cream
 - 1/2 teaspoon vanilla extract
